@@ -1,2 +1,2 @@
 # blast
-mantap kali
+mantap kalih
